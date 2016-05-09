@@ -13,3 +13,9 @@ He slowly stands, grabbing his cup and making it and the money vanish. He checks
 [TITLE]
 
 The old man wanders the city, he stops in parks and sits on benches for hours lost in thought. He lives off of vending machines and the generocity of others, always slowly shuffling. Some know him, he'll help out in markets, randomly freeing cats from trees, providing lighters to smokers, small courtesies to the common man.
+
+Our wanderer stops on a park bench sheltered from the light rain by an overhang. He calms himself. His breating slows. Briefly blue lines orbit his left hand. His right hand grips his walking stick tighter, hoping maybe this will be the time. With his eyes closed, he feels the power, so faint. An echo of what he used to be able to channel. 
+
+He opens his eyes, exhales, and pushes his left hand forward. A small burst of light slowly leaves his hand, travels about a foot, and disappates.
+
+He repeats this for about an hour, and finally a young man takes a seat next to him. 
