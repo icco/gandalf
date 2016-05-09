@@ -25,3 +25,5 @@ He repeats this for about an hour, and finally a young Japanese man takes a seat
 The old man looks over and makes a small smile. "Magic. I'm not as good as I once was, but I keep on practicing".
 
 "That's neat, can you teach me to do that?"
+
+ > Start branching here? Could do something where based on answer the child becomes good / evil?
